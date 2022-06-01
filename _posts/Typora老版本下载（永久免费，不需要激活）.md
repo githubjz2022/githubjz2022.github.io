@@ -1,0 +1,5 @@
+**Typora老版本下载（永久免费，不需要激活）**
+
+老版本的下载链接：https://pan.baidu.com/s/1TY4R4xr3ABEWZDwVi9qvKw?pwd=u2nk
+
+下载后直接安装即可~
